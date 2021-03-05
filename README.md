@@ -1,0 +1,2 @@
+# trafficxia
+大家好，今天给大家介绍一款永久免费互相刷youtube流量的软件,免费互相展示youtube时长的软件,免费互相刷订阅的软件,还可以刷facebook,Twitter,instagram以及任何电脑，手机网址都可以刷，免费刷youtube流量，免费刷youtube时长，免费刷youtube订阅，免费刷facebook，免费刷Twitter，免费刷instagram，免费刷alexa网站排名，免费刷各种视频网站。  官方网址：http://www.trafficxia.com/ 下载地址：http://www.trafficxia.com/ruanjian/trafficxia.rar telegram-电报群：https://t.me/trafficxia  注意：需要win64位的电脑才可以使用， 比如：windows7-64位,windows8-64位,windows10-64位
